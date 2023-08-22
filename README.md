@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Data Science, Machine Learning, Deep Learning**
 
-- 📫 How to reach me **ishatadas4@gmail.com**
+- 📫 How to reach me **ishatadas02@gmail.com**
 
 - ⚡ Fun fact is I want to work for "Apple" 
 
