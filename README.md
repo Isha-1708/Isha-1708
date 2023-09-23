@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ishatadas02@gmail.com**
 
-- ⚡ Fun fact is I want to work for "Apple" 
+- ⚡ Fun fact is I want to work for "Mercari" 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
